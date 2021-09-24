@@ -1,5 +1,5 @@
 # Alexandra MacKay
-**Some Of My Interests:**
+**Some of My Interests:**
 * I like playing the guitar.
 * I like reading science fiction novels.
 * My favorite subject has always and will always be math.
